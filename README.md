@@ -37,4 +37,4 @@ Documentar minha trajetória e progresso como estudante de tecnologia
 ## 📌 Atualizações
 📅 **Agosto/2025:** Início do curso e primeiras atividades 
 ## 🌐 Onde me encontrar
-[![LinkedIn](https://www.linkedin.com/in/niedja-fernandes-332094237/)
+https://www.linkedin.com/in/isabela-gon%C3%A7alves-501783b7/
